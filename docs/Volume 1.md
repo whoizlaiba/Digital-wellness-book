@@ -1,0 +1,5 @@
+# Chapter 1: Understanding Digital Wellness
+
+Digital wellness refers to maintaining a healthy balance between technology use and personal well-being. It involves being aware of how digital habits affect mental focus, emotional health, and physical comfort. Many people use technology automatically without realizing how much time they spend scrolling, clicking, and consuming content. Digital wellness encourages conscious decision-making so technology serves our goals instead of controlling our attention.
+
+This chapter explains why digital wellness is essential in modern life. It highlights how constant connectivity can blur the line between work and rest, reduce deep thinking, and affect real-world relationships. By understanding digital wellness, readers begin the journey toward mindful technology use and personal balance.
